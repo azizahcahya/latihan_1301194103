@@ -5,3 +5,5 @@ yuhu~~~
 sudah diedit dilokal
 yuhu~~
 holahola
+
+skuy
